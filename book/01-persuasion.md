@@ -1,4 +1,4 @@
-# Chapter 1: Persuasion and Human Decision-Making
+# Chapter 1: Persuasion and Human Decision-Maki
 
 Persuasion is part of ordinary life. A roommate recommends a movie, a professor explains why an assignment matters, and a brand asks us to choose one product over another. Learning about it does not mean learning to trick people. It means learning to communicate choices clearly and responsibly.
 
